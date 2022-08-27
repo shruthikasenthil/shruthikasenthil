@@ -6,6 +6,4 @@ An enthusiastic web developer who is more interested in front end developing and
 - 👯 I’m looking to collaborate on spotknack talent-community.
 - 💬 Ask me about programming language.
 - 📫 How to reach me:linkedin www.linkedin.com/in/shruthika-senthil-
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
 -->
